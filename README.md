@@ -3,7 +3,7 @@
 ⊹٭𝚑𝚊𝚒𝚒! 𝚒𝚖 𝚊 𝚢𝚘𝚞𝚗𝚐 𝚊𝚛𝚝𝚒𝚜𝚝 𝚠𝚑𝚘 𝚁𝙴𝙰𝙻𝙻𝚈 𝚕𝚒𝚔𝚎𝚜 𝚖𝚛 𝚍𝚘𝚘𝚖𝚋𝚛𝚒𝚗𝚐𝚎𝚛 𝚛𝚘𝚋𝚕𝚘𝚡>> 𝚝𝚛𝚞𝚜𝚝 𝚒𝚖 𝚑𝚒𝚜 #𝟷 𝚏𝚊𝚗 𝚝𝚛𝚞𝚜𝚝٭⊹
 
 
-<img width="900" height="700" alt="image" src="https://github.com/user-attachments/assets/7929669f-fe7f-467a-94e9-f100fc23c77e" />
+<img width="700" height="700" alt="image" src="https://github.com/user-attachments/assets/7929669f-fe7f-467a-94e9-f100fc23c77e" />
 
 ⊹٭𝚒 𝚍𝚘 𝚐𝚎𝚝 𝚘𝚟𝚎𝚛𝚜𝚝𝚒𝚖𝚞𝚕𝚊𝚝𝚎𝚍 𝚏𝚛𝚘𝚖 𝚕𝚊𝚛𝚐𝚎 𝚌𝚛𝚘𝚠𝚍𝚜 𝚘𝚏 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚜𝚘 𝚒𝚏 𝚒 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚖𝚘𝚟𝚎 𝚓𝚞𝚜𝚝 𝚔𝚗𝚘𝚠 𝚝𝚑𝚊𝚝 𝚒𝚝𝚜 𝚏𝚘𝚛 𝚊 𝚐𝚘𝚘𝚍 𝚛𝚎𝚊𝚜𝚘𝚗!٭⊹
 
