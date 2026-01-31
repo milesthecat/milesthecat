@@ -5,10 +5,9 @@
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/7929669f-fe7f-467a-94e9-f100fc23c77e" />
 
-i do get overstimulated from large crowds of people, so if i want to move just know that its for a good reason!
+⊹٭𝚒 𝚍𝚘 𝚐𝚎𝚝 𝚘𝚟𝚎𝚛𝚜𝚝𝚒𝚖𝚞𝚕𝚊𝚝𝚎𝚍 𝚏𝚛𝚘𝚖 𝚕𝚊𝚛𝚐𝚎 𝚌𝚛𝚘𝚠𝚍𝚜 𝚘𝚏 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚜𝚘 𝚒𝚏 𝚒 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚖𝚘𝚟𝚎 𝚓𝚞𝚜𝚝 𝚔𝚗𝚘𝚠 𝚝𝚑𝚊𝚝 𝚒𝚝𝚜 𝚏𝚘𝚛 𝚊 𝚐𝚘𝚘𝚍 𝚛𝚎𝚊𝚜𝚘𝚗!٭⊹
 
-im wanting to make friends and interact with people so dont be afraid to come up to me in-game!
-
+𝚒𝚖 𝚠𝚊𝚗𝚝𝚒𝚗𝚐 𝚝𝚘 𝚖𝚊𝚔𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚊𝚗𝚍 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚙𝚎𝚘𝚙𝚕𝚎 𝚜𝚘 𝚍𝚘𝚗𝚝 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚝𝚘 𝚌𝚘𝚖𝚎 𝚞𝚙 𝚝𝚘 𝚖𝚎 𝚒𝚗-𝚐𝚊𝚖𝚎!
 
 <img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/799e734c-2155-437a-bc32-91b4a1474837" />
 
