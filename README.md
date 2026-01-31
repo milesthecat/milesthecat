@@ -9,7 +9,7 @@
 
 𝚒𝚖 𝚠𝚊𝚗𝚝𝚒𝚗𝚐 𝚝𝚘 𝚖𝚊𝚔𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚊𝚗𝚍 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚙𝚎𝚘𝚙𝚕𝚎 𝚜𝚘 𝚍𝚘𝚗𝚝 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚝𝚘 𝚌𝚘𝚖𝚎 𝚞𝚙 𝚝𝚘 𝚖𝚎 𝚒𝚗-𝚐𝚊𝚖𝚎!
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/799e734c-2155-437a-bc32-91b4a1474837" />
+<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/799e734c-2155-437a-bc32-91b4a1474837" />
 
 
 
