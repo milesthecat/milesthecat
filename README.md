@@ -4,17 +4,10 @@ this is for pt ^_^
 
 haii! im a young artist who REALLY likes mr doombringer roblox>> trust im his #1 fan
 
-placeholder image
+<img width="2075" height="827" alt="image" src="https://github.com/user-attachments/assets/7929669f-fe7f-467a-94e9-f100fc23c77e" />
 
 im wanting to make friends and interact with people so dont be afraid to come up to me in-game!
 
-omar was here
-
-image placeholder
-
 <img width="1987" height="804" alt="image" src="https://github.com/user-attachments/assets/799e734c-2155-437a-bc32-91b4a1474837" />
 
-this is totaly wip MIND THE MESS
-
-ok ty
-
+omar was here (ily ml)
