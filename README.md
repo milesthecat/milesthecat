@@ -1,16 +1,17 @@
-## Hi there 👋
+lace thingy idk placeholder
 
-<!--
-**milesthecat/milesthecat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+this is for pt ^_^
 
-Here are some ideas to get you started:
+haii! im a young artist who REALLY likes mr doombringer roblox>> trust im his #1 fan
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+placeholder image
+
+im wanting to make friends and interact with people so dont be afraid to come up to me in-game!
+
+omar was here :3
+
+image placeholder
+
+image placeholder
+
+this is totaly wip MIND THE MESS
