@@ -8,10 +8,14 @@ placeholder image
 
 im wanting to make friends and interact with people so dont be afraid to come up to me in-game!
 
-omar was here :3
+omar was here
 
 image placeholder
 
 image placeholder
 
 this is totaly wip MIND THE MESS
+
+ok ty
+
+![image alt](https://tenor.com/view/doombringer-mr-doombringer-doombringer-roblox-banishmentroblox-banishment-gif-9936309520857739785)
