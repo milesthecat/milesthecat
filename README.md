@@ -1,4 +1,4 @@
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/013d5ee0-b6b8-4209-afee-04045c2572f7" />
+<img width="900" height="900" alt="image" src="https://github.com/user-attachments/assets/013d5ee0-b6b8-4209-afee-04045c2572f7" />
 
 ⊹٭𝚑𝚊𝚒𝚒! 𝚒𝚖 𝚊 𝚢𝚘𝚞𝚗𝚐 𝚊𝚛𝚝𝚒𝚜𝚝 𝚠𝚑𝚘 𝚁𝙴𝙰𝙻𝙻𝚈 𝚕𝚒𝚔𝚎𝚜 𝚖𝚛 𝚍𝚘𝚘𝚖𝚋𝚛𝚒𝚗𝚐𝚎𝚛 𝚛𝚘𝚋𝚕𝚘𝚡>> 𝚝𝚛𝚞𝚜𝚝 𝚒𝚖 𝚑𝚒𝚜 #𝟷 𝚏𝚊𝚗 𝚝𝚛𝚞𝚜𝚝٭⊹
 
