@@ -4,7 +4,7 @@ this is for pt ^_^
 
 haii! im a young artist who REALLY likes mr doombringer roblox>> trust im his #1 fan
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/7929669f-fe7f-467a-94e9-f100fc23c77e" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/7929669f-fe7f-467a-94e9-f100fc23c77e" />
 
 im wanting to make friends and interact with people so dont be afraid to come up to me in-game!
 
