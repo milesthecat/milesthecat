@@ -1,4 +1,5 @@
-lace thingy idk placeholder
+![image alt]([
+](https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Fgallery.yopriceville.com%2FFree-Clipart-Pictures%2FDecorative-Elements-PNG%2FTransparent_Lace_Border_PNG_Clip_Art_Image&ved=0CBYQjRxqFwoTCPjMk-iGtZIDFQAAAAAdAAAAABA-&opi=89978449)<img width="8000" height="1902" alt="image" src="https://github.com/user-attachments/assets/e0eec587-0277-48d8-b326-04fa99c37f70" />)
 
 this is for pt ^_^
 
@@ -18,4 +19,3 @@ this is totaly wip MIND THE MESS
 
 ok ty
 
-![image alt](https://tenor.com/view/doombringer-mr-doombringer-doombringer-roblox-banishmentroblox-banishment-gif-9936309520857739785)
