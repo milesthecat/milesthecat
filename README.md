@@ -1,4 +1,4 @@
-<img width="3464" height="3464" alt="image" src="https://github.com/user-attachments/assets/d91b07b1-2467-4aa7-bb3e-f48c214fa783" />
+<img width="1987" height="683" alt="image" src="https://github.com/user-attachments/assets/013d5ee0-b6b8-4209-afee-04045c2572f7" />
 
 this is for pt ^_^
 
@@ -12,7 +12,7 @@ omar was here
 
 image placeholder
 
-image placeholder
+<img width="1987" height="804" alt="image" src="https://github.com/user-attachments/assets/799e734c-2155-437a-bc32-91b4a1474837" />
 
 this is totaly wip MIND THE MESS
 
