@@ -20,5 +20,4 @@
 im gonna add more here soon
 
 
-
-https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Fdeltatraveler.fandom.com%2Fwiki%2FRalsei&ved=0CBYQjRxqFwoTCLjwk4Kjt5IDFQAAAAAdAAAAABAI&opi=89978449<img width="245" height="290" alt="image" src="https://github.com/user-attachments/assets/cd36faa3-afec-489e-a496-fc73779af315" />
+<img width="245" height="290" alt="image" src="https://github.com/user-attachments/assets/6f501b90-6bb0-429b-8c23-fca2776a0382" />
