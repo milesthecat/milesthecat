@@ -21,7 +21,7 @@ im gonna add more here soon
 
 
 
-i give out free doobiesin-game feel free to ask for one
+i give out free doobies in-game feel free to ask for one
 
 
 <img width="245" height="290" alt="image" src="https://github.com/user-attachments/assets/6f501b90-6bb0-429b-8c23-fca2776a0382" />
