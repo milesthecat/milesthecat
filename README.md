@@ -17,11 +17,12 @@
 
 ⊹٭𝚘𝚖𝚊𝚛 𝚠𝚊𝚜 𝚑𝚎𝚛𝚎 (𝚒𝚕𝚢 𝚖𝚕)٭⊹•꧂
 
-im gonna add more here soon
-
 
 
 i give out free doobies in-game feel free to ask for one
 
 
 <img width="245" height="290" alt="image" src="https://github.com/user-attachments/assets/6f501b90-6bb0-429b-8c23-fca2776a0382" />
+doobie
+
+i have no ideas o also feel free to give me ideas/recomendations/suggestions!
