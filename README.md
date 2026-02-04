@@ -15,15 +15,8 @@
 
 
 
-⊹٭𝚘𝚖𝚊𝚛 𝚠𝚊𝚜 𝚑𝚎𝚛𝚎 (𝚒𝚕𝚢 𝚖𝚕)٭⊹•꧂
+⊹٭𝚘𝚖𝚊𝚛 𝚠𝚊𝚜 𝚑𝚎𝚛𝚎 (𝚒𝚕𝚢 𝚖𝚕)٭⊹•
 
-
-
-i give out free doobies in-game feel free to ask for one
-
-
-<img width="245" height="290" alt="image" src="https://github.com/user-attachments/assets/6f501b90-6bb0-429b-8c23-fca2776a0382" />
-Yap time
 
 
 i have mild autism, so please treat me with patience! i get overstimulated with intense topics/intimate topics if you are not somebody i trust. please dont joke about my pre-transition self, self-harm, depresison, and past friends.
@@ -38,3 +31,7 @@ he WILL get you/silly
 [
 ](https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Fcombatinitiation.miraheze.org%2Fwiki%2FDoombringer&ved=0CBYQjRxqFwoTCJDu9qitv5IDFQAAAAAdAAAAABAI&opi=89978449)<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/7ac7f576-d2a9-49fc-964a-53b41afa9dda" />
 oooooo
+
+i hyperfixate on things easily, so if i suddenly change fandoms, thats probably why !
+warning; just please know if your my friend, or plan on friending me, i will get bonded to you quickly and act hyper/comfortable around you, and i might do things to accidentaly overstimulate you or tire you
+i have so muh engery dawg
