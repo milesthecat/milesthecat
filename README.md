@@ -1,8 +1,8 @@
-<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/c116811c-a11e-4566-ab1e-c4dc81e6adc1" />
-<img width="343" height="63" alt="image" src="https://github.com/user-attachments/assets/23763811-036b-4197-882a-a964b77f28da" />
-
+<img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/c116811c-a11e-4566-ab1e-c4dc81e6adc1" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/23763811-036b-4197-882a-a964b77f28da" />
+.
 **“	"It's MrDoomBringer! We must flee!"	”**
-
+.
 
 <img width="900" height="900" alt="image" src="https://github.com/user-attachments/assets/013d5ee0-b6b8-4209-afee-04045c2572f7" />
 
