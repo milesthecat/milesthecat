@@ -46,13 +46,6 @@ MORE PERSONAL STUFF/CAUTIONS INTERACTING WITH ME AND SUCH BELOW!
 i have mild autism, so please treat me with patience! i get overstimulated with intense topics/intimate topics if you are not somebody i trust. please dont joke about my pre-transition self, self-harm, depresison, and past friends.
 please interact with caution if i am acting distant!
 
-
-.
-
-
-.
-
-
 .
 
 i hyperfixate on things easily, so if i suddenly change fandoms, thats probably why !
