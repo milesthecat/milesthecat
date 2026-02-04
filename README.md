@@ -3,7 +3,6 @@
 
 .
 
-.
 
 **“	"It's MrDoomBringer! We must flee!"	”**
 
