@@ -1,3 +1,10 @@
+<img width="800" height="800" alt="image" src="https://github.com/user-attachments/assets/c116811c-a11e-4566-ab1e-c4dc81e6adc1" />
+[
+](https://static.wikia.nocookie.net/forsaken2024/images/0/0b/5_big_dooms.png/revision/latest?cb=20251213012300)<img width="343" height="63" alt="image" src="https://github.com/user-attachments/assets/23763811-036b-4197-882a-a964b77f28da" />
+
+**“	"It's MrDoomBringer! We must flee!"	”**
+
+
 <img width="900" height="900" alt="image" src="https://github.com/user-attachments/assets/013d5ee0-b6b8-4209-afee-04045c2572f7" />
 
 ꧁•⊹٭𝚑𝚎/𝚑𝚒𝚖 𝚒𝚝/𝚒𝚝𝚜٭⊹•꧂
