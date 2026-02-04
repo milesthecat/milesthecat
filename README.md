@@ -29,7 +29,7 @@ dni if you hate mr doombringer/j/srs
 he WILL get you/silly
 
 [
-](https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Fcombatinitiation.miraheze.org%2Fwiki%2FDoombringer&ved=0CBYQjRxqFwoTCJDu9qitv5IDFQAAAAAdAAAAABAI&opi=89978449)<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/7ac7f576-d2a9-49fc-964a-53b41afa9dda" />
+](https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Fcombatinitiation.miraheze.org%2Fwiki%2FDoombringer&ved=0CBYQjRxqFwoTCJDu9qitv5IDFQAAAAAdAAAAABAI&opi=89978449)<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/7ac7f576-d2a9-49fc-964a-53b41afa9dda" />
 oooooo
 
 i hyperfixate on things easily, so if i suddenly change fandoms, thats probably why !
