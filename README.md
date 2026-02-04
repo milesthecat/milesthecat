@@ -24,8 +24,7 @@ i give out free doobies in-game feel free to ask for one
 
 <img width="245" height="290" alt="image" src="https://github.com/user-attachments/assets/6f501b90-6bb0-429b-8c23-fca2776a0382" />
 Yap time
-|
-v
+
 
 i have mild autism, so please treat me with patience! i get overstimulated with intense topics/intimate topics if you are not somebody i trust. please dont joke about my pre-transition self, self-harm, depresison, and past friends.
 please interact with caution if i am acting distant!
