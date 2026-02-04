@@ -24,6 +24,12 @@
 ⊹٭𝚒 𝚍𝚘 𝚐𝚎𝚝 𝚘𝚟𝚎𝚛𝚜𝚝𝚒𝚖𝚞𝚕𝚊𝚝𝚎𝚍 𝚏𝚛𝚘𝚖 𝚕𝚊𝚛𝚐𝚎 𝚌𝚛𝚘𝚠𝚍𝚜 𝚘𝚏 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚜𝚘 𝚒𝚏 𝚒 𝚠𝚊𝚗𝚝 𝚝𝚘 𝚖𝚘𝚟𝚎 𝚓𝚞𝚜𝚝 𝚔𝚗𝚘𝚠 𝚝𝚑𝚊𝚝 𝚒𝚝𝚜 𝚏𝚘𝚛 𝚊 𝚐𝚘𝚘𝚍 𝚛𝚎𝚊𝚜𝚘𝚗!٭⊹
 
 
+dni if you hate mr doombringer/j/srs
+he WILL get you/silly
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/7ac7f576-d2a9-49fc-964a-53b41afa9dda" />
+oooooo
+
+
 𝚒𝚖 𝚠𝚊𝚗𝚝𝚒𝚗𝚐 𝚝𝚘 𝚖𝚊𝚔𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚊𝚗𝚍 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚙𝚎𝚘𝚙𝚕𝚎 𝚜𝚘 𝚍𝚘𝚗𝚝 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚝𝚘 𝚌𝚘𝚖𝚎 𝚞𝚙 𝚝𝚘 𝚖𝚎 𝚒𝚗-𝚐𝚊𝚖𝚎!
 
 
@@ -31,7 +37,7 @@
 .
 ⊹٭𝚘𝚖𝚊𝚛 𝚠𝚊𝚜 𝚑𝚎𝚛𝚎 (𝚒𝚕𝚢 𝚖𝚕)٭⊹•
 
-
+MORE PERSONAL STUFF/CAUTIONS INTERACTING WITH ME AND SUCH BELOW!
 <img width="900" height="900" alt="image" src="https://github.com/user-attachments/assets/013d5ee0-b6b8-4209-afee-04045c2572f7" />
 
 .
@@ -44,12 +50,8 @@ please interact with caution if i am acting distant!
 .
 
 
-dni if you hate mr doombringer/j/srs
-he WILL get you/silly
-
 .
 
-MORE PERSONAL STUFF/CAUTIONS FOR/WITH ME BELOW!!
 
 [
 ](https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Fcombatinitiation.miraheze.org%2Fwiki%2FDoombringer&ved=0CBYQjRxqFwoTCJDu9qitv5IDFQAAAAAdAAAAABAI&opi=89978449)<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/7ac7f576-d2a9-49fc-964a-53b41afa9dda" />
