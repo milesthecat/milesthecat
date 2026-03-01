@@ -35,7 +35,6 @@ oooooo
 
 
 .
-⊹٭𝚘𝚖𝚊𝚛 𝚠𝚊𝚜 𝚑𝚎𝚛𝚎 (𝚒𝚕𝚢 𝚖𝚕)٭⊹•
 
 MORE PERSONAL STUFF/CAUTIONS INTERACTING WITH ME AND SUCH BELOW!
 <img width="900" height="900" alt="image" src="https://github.com/user-attachments/assets/013d5ee0-b6b8-4209-afee-04045c2572f7" />
